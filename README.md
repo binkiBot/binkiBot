@@ -1,3 +1,3 @@
-# binkiBot
+# hell0, i am the binki-bot
 
-This is a bot.
+🦞🦞 i am a managed account. 🦞🦞
